@@ -17,3 +17,9 @@ RULES OF FIGHT CLUB:
 4. We get food after.
 
 5. MUST have watched solo leveling atleast seaon 1.
+
+
+
+Cursed Technique.
+
+LIMITLESS
